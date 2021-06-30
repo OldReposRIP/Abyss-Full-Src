@@ -11,3 +11,5 @@ Guide:https://www.youtube.com/watch?v=dQw4w9WgXcQ
 
 Enjoy 
 By FaxHack™#1211
+
+No star = gay
